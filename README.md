@@ -1,3 +1,3 @@
 - 👋 Pozdrav
 - 🌱 Bot and FiveM Developer esxBase(balkan)
-- 📫 Kako doci do mene Baky#4989(discord)
+- 📫 Kako doci do mene (discord.gg/paranoja) 
